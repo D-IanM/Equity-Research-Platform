@@ -1,1 +1,0 @@
-# Equity-Research-Platform
